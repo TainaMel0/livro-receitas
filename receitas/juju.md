@@ -16,9 +16,6 @@
 
 - 200 gramas de chocolate meio amargo
 - 200 mililitros de creme de leite
-  - [x] kdkkkd
-    - [ ] kkdks?
-    - [ ] 
-
+ 
 
 
